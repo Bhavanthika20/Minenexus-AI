@@ -1,2 +1,2 @@
 # Minenexus-AI
-Predict, Protect, Rescue 
+Predict, Protect, Rescue NEXORA TEAM 
